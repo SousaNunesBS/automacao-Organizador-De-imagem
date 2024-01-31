@@ -1,0 +1,1 @@
+# automacao-Organizador-De-imagem
